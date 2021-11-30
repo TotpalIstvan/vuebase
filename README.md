@@ -1,4 +1,5 @@
-# [Név]
+# Tótpál István
+
 
 ## Hogyan kezdj neki?
 
